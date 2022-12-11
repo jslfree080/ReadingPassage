@@ -4,6 +4,6 @@ In 1928, British bacteriologist Alexander Fleming observed that a blue mold had 
 <br/>
 
 ## The fossil of Tiktaalik
-Paleontologists
+Paleontologists—scientists who research ancient life by studying fossils- long ago established that the first animals to move from the ocean to land must have done so during the Devonian era (419 to 359 million years ago).
 
 <br/>
