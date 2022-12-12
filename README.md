@@ -10,4 +10,5 @@ The two-foot-long (61 centimeter-long) fossil is of an animal that scientists ha
 <br/>
 
 ## Chavin de Huantar (Architecture & Archaeology)
-Chavin de Huantar is one of the most celebrated ceremonial centers in the Andes. It is an archaeological site containing ruins and artifacts originally constructed around 900 BC by the Chavin, a pre-Inca culture. Evidence suggests that the site flourished from 850 to 200 BC, making the Chavin society one of the earliest civilizations in South America.
+Chavin de Huantar is one of the most celebrated ceremonial centers in the Andes. It is an archaeological site containing ruins and artifacts originally constructed around 900 BC by the Chavin, a pre-Inca culture. Evidence suggests that the site flourished from 850 to 200 BC, making the Chavin society one of the earliest civilizations in South America.<br/><br/>
+Located at an elevation of nearly 3,150 meters above sea level, Chavin de Huantar is ringed by high snow-covered mountains in the north-central highlands of Peru.
