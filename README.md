@@ -8,3 +8,5 @@ Paleontologists—scientists who research ancient life by studying fossils- long
 The two-foot-long (61 centimeter-long) fossil is of an animal that scientists have named Tiktaalik Roseae, which means "large shallow water fish" in the language of the region's Inuit people. <ins>The creature lived 370 million years ago in what was at that time part of a large, swampy landmass near Earth's equator-this area moved to its current location as a result of shifts in the plates that make up Earth's surface</ins>. At that time, deciduous plants were thriving, periodically shedding their leaves in the water, which attracted small prey into warm swampy shallows that were difficult for larger fish to swim in. Scientists believe that competition for food among fish in the oceans had become intense, leading Tiktaalik and other species to begin exploring opportunities in these swampy regions.
 
 <br/>
+
+## Chavin de Huantar (Architecture)
