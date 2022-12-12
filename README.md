@@ -10,3 +10,4 @@ The two-foot-long (61 centimeter-long) fossil is of an animal that scientists ha
 <br/>
 
 ## Chavin de Huantar (Architecture & Archaeology)
+Chavin de Huantar is one of the most celebrated ceremonial centers in the Andes. It is an archaeological site containing ruins and artifacts originally constructed around 900 BC by the Chavin, a pre-Inca culture.
