@@ -9,4 +9,4 @@ The two-foot-long (61 centimeter-long) fossil is of an animal that scientists ha
 
 <br/>
 
-## Chavin de Huantar (Architecture)
+## Chavin de Huantar (Architecture & Archaeology)
