@@ -40,4 +40,9 @@ Other families of Ewe-speakers settled nearby along the coast and in the upland 
 
 <br/>
 
+## Extinction of Herbivores in the Americas 
+About 11,000 years ago, many large herbivores (plant-eaters) became extinct, especially in the Americas. Various theories have been offered to explain why. Researchers who favor the idea that hunting by humans was the main reason point out that the Clovis people of the Americas possessed especially good hunting skills and expanded rapidly through the Americas at about the time that the extinctions occurred. These scientists cite several additional patterns of supporting evidence. First, hunters favor large animals as prey because a single kill provides abundant meat. Second, large animals are especially easy to locate. Third, extinctions of large animals were especially numerous in North and South America where humans had arrived only recently, and animals may not have feared them. Few extinctions occurred in Eurasia and Africa where large animals had long experience with hunters. Finally, those species of large American herbivores that did not become extinct had recently migrated from Eurasia, where they had learned to fear human hunters.<br/>
+
+<br/>
+
 ## 
