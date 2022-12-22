@@ -34,4 +34,10 @@ Wit involves an apt, clever, and often humorous association of words. Oscar Wild
 
 <br/>
 
-##
+## The Ewe (History)
+Triumph over adversity is an important theme in Ewe oral history. Until they came to their present home on the west coast of Africa, the Ewe had lived precariously as a minority within kingdoms of more powerful peoples. One story in their oral tradition recounts their exodus in the late 1600s from Notsie, a walled city-state located in what is now southern Togo. Intimidating Notsie's warriors with fierce drumming, the Ewes escaped under cover of darkness. Moving toward the southwest, they founded many settlements along a large lagoon near the mouth of the Volta River. At last their leaders declared that he was too tired to continue, and his people made a home for themselves in the area.<br/><br/>
+Other families of Ewe-speakers settled nearby along the coast and in the upland hills. The Ewe communities grew and multiplied in these new lands. Eventually the small Ewe settlements expanded into divisions whose inhabitants could all trace male ancestors to the original villages. Family heads or distinguished war leaders became chiefs. Despite bonds of common culture and history, each division zealously loved its independence.<br/>
+
+<br/>
+
+## 
