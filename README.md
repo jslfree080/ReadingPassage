@@ -29,4 +29,9 @@ When the two chimps were returned to their initial groups, other chimps observed
 
 <br/>
 
+## The Wit of Oscar Wilde (Literature)
+Wit involves an apt, clever, and often humorous association of words. Oscar Wilde's play "The Importance of Being Earnest," for example, is satirical in its constant wordplay, most notably in exploiting the multiple meanings of the word "earnest/Ernest," signifying honesty when spelled "earnest" and a man's name when spelled "Ernest." The play is famous for making fun of the superficiality of nineteenth-century upper-class England. Wilde's wit is a fine example of gentle satire. The author does not expect or desire any change in society or the viewer; he wishes merely to amuse.<br/>
+
+<br/>
+
 ##
